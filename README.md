@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Leggyno9
+- 👀 I’m interested in learning new things and meeting new people
+- 🌱 I’m currently just about to start a university course in computing
+- 💞️ I’m looking to collaborate on nothing at the moment as the course hasn't started yet.
